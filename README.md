@@ -1,0 +1,1 @@
+nekenduku ra puka
